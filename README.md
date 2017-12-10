@@ -7,7 +7,7 @@
 
 <span style="font-size: 14px; font-family: Roboto; color: #000000;"><strong>Công Dụng Viên bôi Nhau Thai Cừu và nha dam Vitamin E  Avoe Vera Placenta Canada</strong></span>
 <ul>
- 	<li><span style="font-size: 14px; font-family: Roboto; color: #000000;">Phù hợp cho da mụn hoặc da thương tổn , Da nhạy cảm dễ bị dị ứng</span></li>
+ 	<li><span style="font-size: 14px; font-family: Roboto; color: #000000;">Phù hợp cho da mụn hoặc da thương tổn , <span style="color: #ff0000;"><strong><a style="color: #ff0000;" href="https://haby.vn/san-pham/sua-rua-mat-va-tam-toan-cho-da-nhay-cam-sebamed/">Da nhạy cảm</a></strong></span> dễ bị dị ứng</span></li>
  	<li><span style="font-size: 14px; font-family: Roboto; color: #000000;">Giúp tại tạo da cho làn da mới  mịn màng và săn chắc hoặc da bị nám do điều kiện thời tiết , hoặc do nội tiết tố , da mụn hoặc đang hoặc đã từng bị thương tổn để lại</span></li>
  	<li><span style="font-size: 14px; font-family: Roboto; color: #000000;">Giải pháp chuyên trị nám da, thâm da hiệu quả .</span></li>
  	<li><span style="font-size: 14px; font-family: Roboto; color: #000000;">Nuôi dưỡng da, duy trì độ tươi trẻ.</span></li>
