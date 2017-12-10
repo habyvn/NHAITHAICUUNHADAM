@@ -31,7 +31,7 @@
 <div class="sq_news_text"><span style="font-family: Roboto; font-size: 14px; color: #000000;"><strong>Với công nghệ “nẩy mầm” da với thành phần giàu vật liệu di truyền AND, ARN, viên <span style="color: #ff0000;"><a style="color: #ff0000;" href="https://haby.vn/san-pham/vien-boi-nhau-thai-cuu-va-vitamin-e-extra-spf15/">gel nhau thai cừu Bill Placenta</a></span> giúp tái sinh da, ngăn chặn chống lão hóa giúp cải hoàn các tế bào gốc dưới da giúp làn da luôn luôn tươi trẻ.</strong></span></div>
 <div><span style="font-family: Roboto; font-size: 14px; color: #000000;"> </span></div>
 <div>
-<h2><span style="font-family: Roboto; font-size: 14px; color: #000000;"><em>HÃY DÙNG VIÊN BÔI NHAU THAI CỪU CỦA CANADA BILL PLACENTA CANADA GIÚP BẢO VỆ LÀN DA CỦA BẠN LUÔN LUÔN ĐẸP HOÀN THIỆN VÀ RẠNG NGỜI.</em></span></h2>
+<h2><span style="font-family: Roboto; font-size: 14px; color: #000000;"><em>HÃY DÙNG <span style="color: #ff0000;"><a style="color: #ff0000;" href="https://www.billplacenta.com">VIÊN BÔI NHAU THAI CỪU CỦA CANADA</a></span> BILL PLACENTA CANADA GIÚP BẢO VỆ LÀN DA CỦA BẠN LUÔN LUÔN ĐẸP HOÀN THIỆN VÀ RẠNG NGỜI.</em></span></h2>
 </div>
 </div>
 <div class="sq_news_text"><span style="font-family: Roboto; font-size: 14px; color: #000000;"> </span></div>
